@@ -1,3 +1,3 @@
 # ai_essay_detector
 
-for club applications
+hehe uwu
